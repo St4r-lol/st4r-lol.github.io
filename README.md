@@ -1,5 +1,2 @@
-congrats you found my websites source code
-
-
-do as you wish i don't give a shit
-half of this is ChatGPT anyway
+FORKED FROM MY OLD GITHUB ACC!!!!!
+(for who shall concern, aka is-a.dev maintainers)
